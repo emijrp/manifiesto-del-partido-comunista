@@ -1,3 +1,5 @@
+# Manifiesto del Partido Comunista
+
 Un espectro se cierne sobre Europa: el espectro del comunismo. Contra este espectro se han conjurado en santa jauría
 todas las potencias de la vieja Europa, el Papa y el zar, Metternich y Guizot, los radicales franceses y los polizontes
 alemanes.
@@ -15,3 +17,13 @@ tendencias, sus aspiraciones, saliendo así al paso de esa leyenda del espectro 
 
 Con este fin se han congregado en Londres los representantes comunistas de diferentes países y redactado el siguiente
 Manifiesto, que aparecerá en lengua inglesa, francesa, alemana, italiana, flamenca y danesa. 
+
+## Burgueses y proletarios
+
+## Proletarios y comunistas
+
+## Literatura socialista y comunista
+
+## Actitud de los comunistas ante los otros partidos de la oposición
+
+
