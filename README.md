@@ -434,4 +434,4 @@ Finalmente, los comunistas laboran por llegar a la unión y la inteligencia de l
 
 Los comunistas no tienen por qué guardar encubiertas sus ideas e intenciones.  Abiertamente declaran que sus objetivos sólo pueden alcanzarse derrocando por la violencia todo el orden social existente. Tiemblen, si quieren, las clases gobernantes, ante la perspectiva de una revolución comunista.  Los proletarios, con ella, no tienen nada que perder, como no sea sus cadenas.  Tienen, en cambio, un mundo entero que ganar.
 
-¡Proletarios de todos los Países, uníos!
+**¡Proletarios de todos los Países, uníos!**
